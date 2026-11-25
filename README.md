@@ -168,3 +168,10 @@ SHEBA Cat food
 CESAR Dog food
 IAMS Dog and cat nutrition
 
+
+
+
+
+
+The diversity of Mars Petcare's products creates different requirements for ingredients, formulations, packaging, production, inventory management and demand planning. This requires coordination across supply chain activities to ensure product availability and meet varying customer demand.
+
