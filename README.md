@@ -70,3 +70,15 @@ Royal Canin joined Mars Petcare, strengthening its presence in specialized pet n
 Mars expanded its Petcare business further, broadening its presence in pet nutrition and veterinary healthcare.
 Source: Mars, Incorporated
 
+
+
+Descriptions below the timeline
+Foundation of Mars: Frank C. Mars began making and selling butter cream candy from his kitchen in Tacoma, Washington.
+Entry into Petcare: Mars entered the Petcare business when Forrest E. Mars, Sr. acquired Chappel Brothers, Ltd., maker of CHAPPIE canned dog food.
+Waltham: The Waltham Centre for Pet Nutrition was established in the UK to research the dietary needs and preferences of pets.
+Australia Manufacturing: Pet food manufacturing began in Wodonga, Australia, marking an expansion of Mars' production operations.
+Kal Kan: Mars acquired Kal Kan Foods in Los Angeles, California, expanding its presence in the US pet food market.
+Royal Canin: Mars expanded its Petcare portfolio through the acquisition of Royal Canin, a French pet food company.
+
+
+
