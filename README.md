@@ -145,3 +145,26 @@ Mars Petcare advances pet health through scientific research, diagnostics, data 
 
 
 Mars Veterinary Health provides veterinary care through a network of clinics and healthcare businesses, offering preventive, general, specialty and emergency services. Its network includes approximately 3,000 clinics and cares for more than 35 million pets annually. [1]
+
+
+
+4.1 Product Categories
+Mars Petcare offers a diverse portfolio of pet food, treats, care products, and specialized nutritional solutions designed to meet pets' individual needs. [1]
+
+Product Category Description
+Dog Food Nutrition products for dogs
+Cat Food Nutrition products for cats
+Specialized Nutrition Nutrition tailored to breeds, life stages, lifestyles, and health conditions
+Pet Treats Treats and rewards for pets
+Therapeutic Nutrition Specialized nutrition supporting specific health needs
+
+4.2 Major Brands
+
+Brand Product Focus
+PEDIGREE Dog food and nutrition
+WHISKAS Cat food and nutrition
+ROYAL CANIN Specialized nutrition tailored to breed, life stage, lifestyle, and health
+SHEBA Cat food
+CESAR Dog food
+IAMS Dog and cat nutrition
+
