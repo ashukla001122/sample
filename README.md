@@ -35,3 +35,21 @@ Mars acquired Kal Kan Foods, expanding its presence in the US pet food market.
 Royal Canin became part of Mars Petcare, strengthening its specialized pet nutrition portfolio.
 6. 2015 — Mars Petcare Expansion
 Mars further expanded its Petcare business, strengthening its position across pet nutrition and veterinary healthcare.
+
+
+
+
+
+Descriptions below the timeline
+1911 — Foundation
+Frank C. Mars began making and selling butter cream candy from his kitchen in Tacoma, Washington.
+1935 — Entry into Petcare
+Mars entered the Petcare business through the acquisition of Chappel Brothers, Ltd., maker of CHAPPIE dog food.
+1965 — Waltham
+The Waltham Centre for Pet Nutrition was established, supporting the company's focus on pet nutrition research.
+1968 — Kal Kan
+Mars acquired Kal Kan Foods, expanding its presence in the US pet food market.
+2002 — Royal Canin
+Royal Canin joined Mars Petcare, strengthening its presence in specialized pet nutrition.
+2015 — Expansion
+Mars expanded its Petcare business further, broadening its presence in pet nutrition and veterinary healthcare.
