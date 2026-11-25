@@ -89,3 +89,7 @@ Royal Canin: Mars expanded its Petcare portfolio through the acquisition of Roya
 Mars, Incorporated's business philosophy is guided by its Five Principles: Quality, Responsibility, Mutuality, Efficiency, and Freedom. These principles form the foundation of how the company operates and guide its Associates in decision-making across different geographies, cultures, and generations. Mars states that the principles influence how it conducts business and builds relationships with consumers, clients, suppliers, Associates, and other stakeholders. [4]
 
 
+
+Mars Petcare operates across pet nutrition and therapeutic health products, veterinary healthcare, and science, diagnostics, innovation, and technology. These businesses combine nutritional products, medical care, research, and technological capabilities to support pets' health and wellbeing. [1]
+
+
