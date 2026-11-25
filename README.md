@@ -21,3 +21,17 @@ Mars, Incorporated is a family-owned global business that has developed over mor
 
 
 Mars, Incorporated has evolved from a confectionery business founded in 1911 into a global company with a diversified portfolio of products and services. Its expansion into Petcare, investments in pet nutrition research, and strategic acquisitions have played a significant role in shaping the development of Mars Petcare. [3]
+
+
+1. 1911 — Foundation of Mars
+Frank C. Mars began making and selling butter cream candy from his kitchen in Tacoma, Washington, USA.
+2. 1935 — Entry into Petcare
+Mars entered the Petcare business through the acquisition of Chappel Brothers, Ltd., maker of CHAPPIE dog food.
+3. 1965 — Pet Nutrition Research
+The Waltham Centre for Pet Nutrition was established in the UK.
+4. 1968 — Expansion into the US Petcare Market
+Mars acquired Kal Kan Foods, expanding its presence in the US pet food market.
+5. 2002 — Royal Canin Acquisition
+Royal Canin became part of Mars Petcare, strengthening its specialized pet nutrition portfolio.
+6. 2015 — Mars Petcare Expansion
+Mars further expanded its Petcare business, strengthening its position across pet nutrition and veterinary healthcare.
