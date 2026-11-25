@@ -141,5 +141,7 @@ Mars Veterinary Health provides veterinary services through a network of healthc
 Mars Petcare offers a diverse range of pet food, treats and specialized nutritional products designed to support the health and wellbeing of pets. Its portfolio includes products for different species, life stages, nutritional requirements and health conditions. Through science-backed nutrition and specialized dietary solutions, Mars Petcare aims to address the varied needs of pets and their owners across global markets. [1]
 
 
+Mars Petcare advances pet health through scientific research, diagnostics, data and technology. Its Waltham Petcare Science Institute has conducted research in pet nutrition and health for over 60 years. [1]
+
 
 
