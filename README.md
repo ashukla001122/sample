@@ -134,3 +134,6 @@ Innovation Development of new approaches, tools and solutions to advance pet hea
 Mars' veterinary diagnostics business, Antech, provides diagnostic services spanning in-house diagnostics, reference laboratories and at-home offerings, including Wisdom Panel. [1]
 
 
+Mars Veterinary Health provides veterinary services through a network of healthcare businesses and clinics. Its services cover preventive care, general practice, specialty treatment and emergency care, supported by veterinary professionals and healthcare expertise. Mars Veterinary Health reports that its network provides care for more than 35 million pets annually through approximately 3,000 veterinary clinics worldwide. [1]
+
+
