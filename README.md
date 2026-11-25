@@ -93,3 +93,15 @@ Mars, Incorporated's business philosophy is guided by its Five Principles: Quali
 Mars Petcare operates across pet nutrition and therapeutic health products, veterinary healthcare, and science, diagnostics, innovation, and technology. These businesses combine nutritional products, medical care, research, and technological capabilities to support pets' health and wellbeing. [1]
 
 
+
+
+cial description. [1]
+2.2 Veterinary Healthcare
+Mars Veterinary Health provides veterinary services through a network of healthcare businesses and clinics. Its services cover preventive care, general practice, specialty treatment and emergency care, supported by veterinary professionals and healthcare expertise. [1]
+70,000
+Associates
+~3,000
+Veterinary clinics
+35M+
+Pets cared for annually
+Mars Veterinary Health reports that its network provides care for more than 35 million pets annually through approximately 3,000 veterinary clinics worldwide. Its workforce includes professionals delivering preventive, general, specialty and emergency services. [1]
