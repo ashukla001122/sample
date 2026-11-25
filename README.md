@@ -104,4 +104,33 @@ Associates
 Veterinary clinics
 35M+
 Pets cared for annually
-Mars Veterinary Health reports that its network provides care for more than 35 million pets annually through approximately 3,000 veterinary clinics worldwide. Its workforce includes professionals delivering preventive, general, specialty and emergency services. [1]
+Mars Veterinary Health reports that its network provides care for more than 35 million pets annually through approximately 3,000 veterinary clinics worldwide. Its workforce includes professionals delivering preventive, general, specialty and emergency services
+
+
+
+
+
+
+
+
+
+
+
+Mars Petcare uses scientific research, diagnostics, data and technology to improve understanding of pet health and develop new approaches to veterinary care. The Waltham Petcare Science Institute has been advancing research into pet nutrition and health for more than 60 years. [1]
+Its science and diagnostics capabilities include:
+[1]
+
+
+Area Description
+Pet Health Research Research into pet nutrition, health, wellbeing and the needs of pets.
+Veterinary Diagnostics Diagnostic testing through in-house services, reference laboratories and at-home diagnostic offerings.
+DNA Testing Genetic information and health insights through pet DNA testing services.
+Data & Technology Use of data, analytics and technology to support pet health and personalized care.
+Innovation Development of new approaches, tools and solutions to advance pet health and veterinary care.
+
+
+
+
+Mars' veterinary diagnostics business, Antech, provides diagnostic services spanning in-house diagnostics, reference laboratories and at-home offerings, including Wisdom Panel. [1]
+
+
