@@ -137,3 +137,9 @@ Mars' veterinary diagnostics business, Antech, provides diagnostic services span
 Mars Veterinary Health provides veterinary services through a network of healthcare businesses and clinics. Its services cover preventive care, general practice, specialty treatment and emergency care, supported by veterinary professionals and healthcare expertise. Mars Veterinary Health reports that its network provides care for more than 35 million pets annually through approximately 3,000 veterinary clinics worldwide. [1]
 
 
+
+Mars Petcare offers a diverse range of pet food, treats and specialized nutritional products designed to support the health and wellbeing of pets. Its portfolio includes products for different species, life stages, nutritional requirements and health conditions. Through science-backed nutrition and specialized dietary solutions, Mars Petcare aims to address the varied needs of pets and their owners across global markets. [1]
+
+
+
+
